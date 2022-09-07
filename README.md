@@ -1,6 +1,6 @@
 ### Hi there 👋 I'm Amedeo!
 
-I am currently in my final semester at ODU as a senior and look forward to graduating in December. I will be graduating with a degree in Game Design - Development and a minor in Computer Science. When I am not at school or at work I like to spend my time doing a variety of different things. I am currently hooked on Final Fantasy XIV (and have been for a while) but I love playing all kinds of games. 
+I am currently in my final semester at ODU as a senior and look forward to graduating in December. I will be graduating with a degree in Game Design - Development and a minor in Computer Science. When I am not at school or at work I like to spend my time doing a variety of different things, most of which is gaming. I am currently hooked on Final Fantasy XIV (and have been for a while) but I love playing different genres of games. My personal favorites are RPGs but I have also recently been playing a lot of Horror games with my friends.
 
 <!--
 **AmedeoFindlay/AmedeoFindlay** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
