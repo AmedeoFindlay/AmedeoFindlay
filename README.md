@@ -7,7 +7,7 @@ I am currently in my final semester at ODU as a senior and look forward to gradu
 - 👯 I’m looking to collaborate on ...
 - 🤔 I’m looking for help with ...
 - 💬 Ask me about 
-- 📫 If looking to reach me email me via mfind003@odu.edu
+- 📫 Reach me via mfind003@odu.edu
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: Even though my favorite genre of games are RPGs, you will find me ranked in the highest tier of every game I play. Including but not limited to: League of Legends, Valorant, Overwatch, Rainbow Six: Siege, and Pokemon!
 
