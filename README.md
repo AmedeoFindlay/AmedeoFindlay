@@ -6,8 +6,8 @@ I am currently an ODU alumnus! When I am not at work I like to spend my time doi
 - 🤔 I’m currently learning C++, Java, Python, and Unity.
 - 👯 I’m looking to collaborate on an augmented reality game at ODU.
 - 💬 Ask me about anything, I'll try my best to help!
-- 📫 Reach me via mfind003@odu.edu
+- 📫 Reach me via medhanyefindlay@gmail.com
 - 😄 Pronouns: He/Him/His
-- ⚡ Fun fact: Even though my favorite genre of games are RPGs, you will find me ranked in the highest tier of every game I play. Including but not limited to: League of Legends, Valorant, Overwatch, Rainbow Six: Siege, and Pokemon!
+- ⚡ Fun fact: Even though my favorite genre of games are RPGs, you will find me playing every type of game. Including but not limited to: League of Legends, Valorant, Overwatch, Dead by Daylight and more!
 
 <!--
