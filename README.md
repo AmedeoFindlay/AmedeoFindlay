@@ -5,9 +5,7 @@ I am currently an ODU alumnus! When I am not at work I like to spend my time doi
 - 🔭 I’m currently employed at Verizon.
 - 🤔 I’m experienced with C++, Java, Python, and Unity.
 - 👯 I’m looking to collaborate on an augmented reality game.
-- 💬 Ask me about anything, I'll try my best to help!
+- 🔭 Currently working on a personal project in Unity.
 - 📫 Reach me via medhanyefindlay@gmail.com
-- 😄 Pronouns: He/Him/His
-- ⚡ Fun fact: Even though my favorite genre of games are RPGs, you will find me playing every type of game. Including but not limited to: League of Legends, Valorant, Overwatch, Dead by Daylight and more!
 
 <!--
